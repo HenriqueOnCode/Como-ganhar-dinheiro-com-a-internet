@@ -1,4 +1,4 @@
-### **Descubra como ganhar dinheiro na internet!** 
+### **Descubra como ganhar dinheiro na internet!** - Imersão Dev com Google Gemini
 
 **O que essa aplicação faz?**
 
